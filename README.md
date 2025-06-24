@@ -15,6 +15,6 @@ Here you'll find writing samples from:
 
 Feel free to explore the folders to view my work!
 
-🖥 [LinkedIn Profile](https://www.linkedin.com/in/your-profile)
+🖥 LinkedIn Profile: https://www.linkedin.com/in/vandana-gandhi-268846354/
 
 
